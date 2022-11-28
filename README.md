@@ -1,1 +1,0 @@
-# image-forex-2022
